@@ -1,4 +1,4 @@
-# 
+# Get the ultimate dydx trading bot with updated dydx trading bot Utility | rug-pull-detection + MEV-strategies. Featuring rug-pull-detection and MEV-strategies, it's the best
 
 
 
